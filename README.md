@@ -1,2 +1,0 @@
-# gklsweb
-GK lLIFE SCIENCES
